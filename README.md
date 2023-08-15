@@ -1,3 +1,3 @@
 The team behind the project
-wakjira Tadese
-Oloniyo Sunday 
+Bedasa Wayessa
+Ayoub Eladib
